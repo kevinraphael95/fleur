@@ -1,1 +1,1 @@
-https://kevinraphael95.github.io/jardin/jaridn.html
+https://kevinraphael95.github.io/jardin/jardin.html
